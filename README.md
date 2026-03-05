@@ -4,7 +4,7 @@
 
  * **一名Dhu研究生在读的后端小吗喽～**
 
- * **欢迎访问我的博客：<a href="https://www.wxhhyn.icu">摆烂的小趴菜</a>**
+ * **欢迎访问我的博客：<a href="https://wxhhyn.xyz">摆烂的小趴菜</a>**
 
 
  * **With each day's arduous effort,no achievement shall be in vain!**
